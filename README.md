@@ -1,0 +1,4 @@
+azerumprogramaparalerumaquantiaeaduraçãoemmesesdeum
+ empréstimo. Informarovaloraserpagodepoisdedecorridooprazodo
+ empréstimo, conformeregrasdejurosdoBrasil.Aregradecálculode
+ jurosdoBrasiléjurocompostopadrãode2%aomês
